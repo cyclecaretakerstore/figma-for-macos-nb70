@@ -1,4 +1,4 @@
-
+Figma for macOS instant Brush Pack - smart objects and non-destructive editing offers the most advanced Figma for macOS brush, with smart objects and non-destructive editing.
 
 
 
